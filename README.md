@@ -13,3 +13,4 @@
 
 - Programmer Official Website : `Mmdrza.Com`
 - Flashixer Page : [Mmdrza.Com/flashixer](https://mmdrza.com/flashixer 'MMDRZA - Official Page Flashixer For Flashing Bitcoin Transaction')
+- <a href="https://mmdrza.com/flashixer2-6-9" rel="dofollow" title="Flashixer 2.6.9 New version for flashing bitcoin wallet and exchange very fast">Flashixer2.6.9 [New]</a>
